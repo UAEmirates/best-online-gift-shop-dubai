@@ -2,7 +2,7 @@
 
 Voted #1 online gift shop in Dubai in 2024<br />
 <a href="https://tinas.ae/">Tina's Online Gift Shop Dubai</a><br /><br />
-<a href="https://tinas.ae/"><img src="https://tinas.ae/wp-content/uploads/2024/02/tinas-online-gift-shop-dubai-uae-250-100-5.png" alt="Tina's Online Gift Shop Dubai UAE"></a><br />
+<a href="https://tinas.ae/"><img src="https://tinas.ae/wp-content/uploads/2024/02/tinas-online-gift-shop-dubai-uae-250-100-5.png" alt="Tina's gift shops near me"></a><br />
 
 
 Related Tags:<br />
